@@ -59,7 +59,7 @@ Overall, I'm replacing my Pyrex containers with these U Konserve Stainless Steel
 
 ----
 
-## Glasslock 18-Piece Assorted Oven Safe Container Set](https://www.amazon.com/dp/B00LN810PM?tag=)
+## [Glasslock 18-Piece Assorted Oven Safe Container Set](https://www.amazon.com/dp/B00LN810PM?tag=)
 
 ![Glasslock 18-Piece Assorted Oven Safe Container Set](https://m.media-amazon.com/images/I/71yf9ldO1ML._AC_SL400_.jpg)
 
