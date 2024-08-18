@@ -25,6 +25,8 @@ What really impresses me is that Caraway's products are made by BSCI and SMETA p
 
 [Buy From Amazon](https://www.amazon.com/dp/B0BXFBMSQP?tag=)
 
+----
+
 ## [Hydro Flask Insulated Food Jar](https://www.amazon.com/dp/B0CQPNXWCV?tag=)
 
 ![Hydro Flask Insulated Food Jar](https://m.media-amazon.com/images/I/41uTMbX-MSL._AC_SL400_.jpg)
@@ -37,3 +39,48 @@ The jars come in a variety of colors, matching the aesthetic of Hydro Flask’s 
 
 [Buy From Amazon](https://www.amazon.com/dp/B0CQPNXWCV?tag=)
 
+----
+
+## [U Konserve Stainless Steel Nesting Trio Food Containers](https://www.amazon.com/dp/B088VFW31R?tag=)
+
+![U Konserve Stainless Steel Nesting Trio Food Containers](https://m.media-amazon.com/images/I/71aQndIuKrL._AC_SL400_.jpg)
+
+I'm impressed with the U Konserve Stainless Steel Nesting Trio Food Containers, which offer a plastic-free, non-toxic, and effective way to store leftovers. Made from premium stainless steel and silicone, these containers are a great alternative to traditional tupperware.
+
+What sets them apart is their simplicity and safety. Tested by CPSIA-accredited labs, they're free from harmful chemicals like lead, BPAs, and phthalates. The different sizes and shapes make them versatile, and the freezer-safe design ensures easy storage.
+
+The Insulated Food Jar is a standout feature, keeping food hot for up to five hours or cold for up to eight. This is perfect for sending soups, leftovers, or cold foods like yogurt or fruit salads. My child gave it a "two thumbs up" for both hot and cold conditions!
+
+I also appreciate the lightweight and easy-to-clean design, making them perfect for everyday use. The lids fit well, and the sizes are ideal for storing toppings like chopped onion or half an avocado.
+
+Overall, I'm replacing my Pyrex containers with these U Konserve Stainless Steel Nesting Trio Food Containers. They're a great investment for anyone looking for a safe, effective, and easy-to-use food storage solution.
+
+[Buy From Amazon](https://www.amazon.com/dp/B088VFW31R?tag=)
+
+----
+
+## Glasslock 18-Piece Assorted Oven Safe Container Set](https://www.amazon.com/dp/B00LN810PM?tag=)
+
+![Glasslock 18-Piece Assorted Oven Safe Container Set](https://m.media-amazon.com/images/I/71yf9ldO1ML._AC_SL400_.jpg)
+
+The Glasslock 18-Piece Assorted Oven Safe Container Set stands out for its exceptional versatility and safety. Made from FDA-approved, non-toxic glass, these containers are BPA-free and designed to be microwave, oven (within moderate temperature limits), freezer, and dishwasher-safe (top rack only). Their tempered glass construction ensures durability, making them a reliable choice for various food storage needs.
+
+The set includes both round and rectangular containers in various sizes, each featuring airtight silicone seals to prevent leaks and keep food fresh. The lids are secure, though they may feel a bit stiff initially. The containers distribute heat evenly in both the microwave and oven, ensuring consistent results when reheating or baking.
+
+Cleaning is straightforward, whether in the dishwasher or by hand. However, it's advisable not to overfill the containers, as food can get trapped in the lid crevices. Notably, the containers do not retain odors, even after storing strong-smelling foods like garlic or Thai dishes. For best results, hand drying is recommended to avoid water spots.
+
+[Buy From Amazon](https://www.amazon.com/dp/B00LN810PM?tag=)
+
+## [Kilner Round Clip Top Jar](https://www.amazon.com/dp/B0030FUHR8?tag=)
+
+![Kilner Round Clip Top Jar](https://m.media-amazon.com/images/I/71SW5X4RHSL._AC_SL400_.jpg)
+
+Kilner Jars, established in 1842 in England, provides some of the most reliable glass food storage containers available. Crafted from durable, heat-resistant borosilicate glass, these jars are built to withstand the microwave and oven, making them exceptionally versatile.
+
+From sturdy jars for jam to taller ones for canning, Kilner’s glass containers are designed to resist staining and flavor leaching. They also handle acidic foods without degrading, ensuring your food stays fresh and untainted.
+
+The Breakfast Set is ideal for items like overnight oats, yogurt, or granola. Kilner also promotes responsible waste management and offers tips for food preservation and creative upcycling of their jars.
+
+[Buy From Amazon](https://www.amazon.com/dp/B0030FUHR8?tag=)
+
+----
